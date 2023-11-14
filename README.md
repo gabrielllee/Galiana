@@ -1,1 +1,1 @@
-# Galiana :cat: :koala:
+# Galiana
