@@ -1,3 +1,1 @@
 # Galiana
-
-André Breton
